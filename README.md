@@ -1,6 +1,9 @@
 Solana Volume Bot available for purchase. Will be up on my website soon, for now contact me https://tg.me/ccc666333
 
 
+Check out the images below. I will turn this repo into a free basic ass version with fees tomorrow likely.
+
+
 Or check out my other tools at https://pumpfun.vip
 
 
